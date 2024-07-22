@@ -1,1 +1,1 @@
-# Euronics-Sticker-Portal
+# MRP-Sticker
